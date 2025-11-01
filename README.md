@@ -7,4 +7,4 @@
   <img width="600" height="265" src="https://files.catbox.moe/00o3re.jpg">
 </p>
 
-&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; strawpage &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; pronouns &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; interests
+&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [strawpage](https://cheriefraise.straw.page) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [pronouns](https://pronouns.cc/@cheriecrush) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [interests](https://rentry.co/thefuturerules)
