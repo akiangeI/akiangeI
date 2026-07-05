@@ -5,7 +5,7 @@
 &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Passion+One&pause=100&color=5D5D5D&center=true&vCenter=true&multiline=true&width=450&lines=%E2%9D%9D+you're+out+of+touch.+i'm+out+of+time.+%E2%9D%9E)](https://git.io/typing-svg)
 
 <p align="center">
-  <img width="600" height="265" src="https://files.catbox.moe/00o3re.jpg">
+  <img width="600" height="260" src="https://files.catbox.moe/ufsup8.jpg">
 </p>
 
 &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [rentry](https://rentry.co/mizaiz) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [pronouns](https://pronouns.cc/@cheriecrush) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [strawpage](https://mizai.straw.page)
